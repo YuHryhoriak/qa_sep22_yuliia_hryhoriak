@@ -1,0 +1,1 @@
+# qa_sep22_yuliia_hryhoriak
